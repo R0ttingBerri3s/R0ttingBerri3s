@@ -1,2 +1,3 @@
-rmking soon.
+<br><p align="center">rmking soon.
 <br><p align="center"><img width="736" src="https://github.com/user-attachments/assets/2147d901-c22d-4f52-a475-297e9d54ac18" />
+<br><p align="center">${\textsf{\color{#6a0000}Me + him .}}$

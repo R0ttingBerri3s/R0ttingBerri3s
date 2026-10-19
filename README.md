@@ -1,11 +1,11 @@
-<br><p align="center">rmking soon.
-<br><p align="center"><img width="736" src="https://github.com/user-attachments/assets/2147d901-c22d-4f52-a475-297e9d54ac18" />
-<br><p align="center">${\textsf{\color{#6a0000}me + him . }}$
+<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=R0ttingBerri3s&left_text=Berries&left_color=%23000000&right_color=%238c8c8c)
+<br><p align="center"><img width="640" src="https://github.com/user-attachments/assets/7063f044-173c-46d3-b095-9bfec058769b" />
+<br><p align="center">${\textsf{\color{#ffffff}my husband actually}}$
 ㅤ 
-<br><p align="center"> ${\textsf{\color{#6a0000}     . . .⠀⠀꒰ Synth / Beast ꒱}}$
-<br><p align="center">${\textsf{\color{#6a0000}            ⁺　.⠀ 18 , he / it⠀  ⌒₊˚ ❤︎ ⠀ }}$
-<br><p align="center">${\textsf{\color{#6a0000}                    bigender   ノ⠀omni .⠀}}$
-<br><p align="center">${\textsf{\color{#6a0000}       ︵  iwec at all times, usually snappy  .ᐟ }}$
-<br><p align="center">${\textsf{\color{#6a0000}       w2i . Im always offtab or in Party chat.}}$
+<br><p align="center"> ${\textsf{\color{#000000}     . . .⠀⠀꒰ Synth / Beast ꒱}}$
+<br><p align="center">${\textsf{\color{#ffffff}            ⁺　.⠀ 18 , he / it⠀  ⌒₊˚ ❤︎ ⠀ }}$
+<br><p align="center">${\textsf{\color{#000000}                    bigender   ノ⠀omni .⠀}}$
+<br><p align="center">${\textsf{\color{#ffffff}       ︵  iwec at all times, usually snappy  .ᐟ }}$
+<br><p align="center">${\textsf{\color{#000000}       w2i . Im always offtab or in Party chat.}}$
 <br><p align="center">
-<br><p align="center">${\textsf{\color{#6a0000}         ask to be moots .ᐟ}}$
+<br><p align="center">${\textsf{\color{#ffffff}         ask to be moots .ᐟ}}$
